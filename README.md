@@ -1,6 +1,6 @@
 每日大赛最新地址👋（最新更新时间2024-2-6）
 
-每日大赛最新官网:https://mrds.day
+每日大赛最新官网:https://mrds.one
 
 每日大赛备用线路1 https://mrds.fun/
 
